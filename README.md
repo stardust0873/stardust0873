@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on some things
 - 📫 How to reach me, i'll get back to you on that
-- 😄 Pronouns: he/him
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I can't think of a fun fact.
 
 <!---
